@@ -1,5 +1,5 @@
 Hello
 This is a test
-fuck
-word is taboo
-porn
+piece of shit
+word exists.
+suicide girls
